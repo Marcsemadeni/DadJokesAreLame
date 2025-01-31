@@ -1,1 +1,1 @@
-// Who is faster: Lightning McQueen or some blue hedgehog
+// Marc's answer: To get a little "class" in his humor
